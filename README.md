@@ -9,6 +9,8 @@ It's important to get your students out of their seats (and their comfort zones)
 + Two questioners, one answerer
 + Human rubber band untangle
 + Enemy and protector
+  + (aka: Assassin/Protector, et al.) Players begin walking around the room (need a fairly open space for this one). Each person secretly chooses one person to be their Nemesis and one to be their Defender. When whoever is leading the warm-up yells go everyone must try and keep their Defender between them and their Nemesis at all times. 
+
 + Fortunately, Unfortunately
 + Crazy eights
 + Ninja Star
