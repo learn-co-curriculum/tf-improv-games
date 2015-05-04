@@ -6,7 +6,8 @@ It's important to get your students out of their seats (and their comfort zones)
 + Bowl of Spaghetti
 + Stare game
 + One word story/One word Advice
-+ Two questioners, one answerer
++ Three Way Conversation
+  + Player A sits between two end player(B and C). Each end player chooses a topic and engages in a conversation with the center as if the other end player did not exist. The center must converse to both ends responding and initiating when necessary, fluent in both conversations and not excluding either player. Then call "switch" and either end player bumps the center over and switch over.
 + Human rubber band untangle
 + Enemy and protector
   + (aka: Assassin/Protector, et al.) Players begin walking around the room (need a fairly open space for this one). Each person secretly chooses one person to be their Nemesis and one to be their Defender. When whoever is leading the warm-up yells go everyone must try and keep their Defender between them and their Nemesis at all times. 
