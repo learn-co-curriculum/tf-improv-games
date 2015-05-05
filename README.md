@@ -14,6 +14,7 @@ It's important to get your students out of their seats (and their comfort zones)
 + Enemy and protector
   + (aka: Assassin/Protector, et al.) Players begin walking around the room (need a fairly open space for this one). Each person secretly chooses one person to be their Nemesis and one to be their Defender. When whoever is leading the warm-up yells go everyone must try and keep their Defender between them and their Nemesis at all times. 
 + Fortunately, Unfortunately
+  + Circle up. First person starts a story with one line. Next person adds a line starting with "fortunately". Next person adds a line starting with "unfortunately". Go back and forth. 
 + Crazy eights
 + Ninja Star
 + Big Booty
