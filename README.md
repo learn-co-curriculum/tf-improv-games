@@ -6,13 +6,13 @@ It's important to get your students out of their seats (and their comfort zones)
 + Bowl of Spaghetti
 + Stare game
   + Circle up. Everyone puts heads down and at the count of three everyone looks up and stares at one other person in the circle. If the person they chose is staring back at them, you're both out. Play until there are two winners.
-+ One word story/One word Advice
++ One Word Proverbs
+  + Players in a circle. One player starts with first word of a (non-existing) proverb; circle continues, one word at a time, until the group 'feels' the proverb is done; at that point everybody says 'yes yes yes yes'. Hint: start with (a) typical proverb word(s), like 'A', 'He who', etc. 
 + Three Way Conversation
   + Player A sits between two end player(B and C). Each end player chooses a topic and engages in a conversation with the center as if the other end player did not exist. The center must converse to both ends responding and initiating when necessary, fluent in both conversations and not excluding either player. Then call "switch" and either end player bumps the center over and switch over.
 + Human rubber band untangle
 + Enemy and protector
   + (aka: Assassin/Protector, et al.) Players begin walking around the room (need a fairly open space for this one). Each person secretly chooses one person to be their Nemesis and one to be their Defender. When whoever is leading the warm-up yells go everyone must try and keep their Defender between them and their Nemesis at all times. 
-
 + Fortunately, Unfortunately
 + Crazy eights
 + Ninja Star
@@ -21,7 +21,6 @@ It's important to get your students out of their seats (and their comfort zones)
 + Stretch and Share
 + Category game (pattern/memory)
   + Everyone in a circle. Pick a category (e.g. make of cars, girls names, kinds of food, kinds of plants, whatever). First person states an example of the category, and points to someone else. Keep pointing. That someone else does the same, with a different item in the category, and so forth, until everyone points at one person. Then repeat the pattern. Make eye contact when passing your item to the next person. Drop the pointing arms when everyone is comfortable and the series is collectively memorized. Then do the same with a second category, and make sure the pointing pattern is different. Repeat till everyone is comfortable. Then do the same exercise, without pointing, and running the 2 categories at the same time. Add a third, fourth category if you wish. No pointing arms any more! The idea is not only to listen for the item right before yours in the series (so you know when it`s your turn), but also to make sure that when you pass an item to someone else, that someone else actually hears you. If not, then repeat your item, to ensure the series does not get broken."
- 
 + Evolution(Egg/chicken/velociraptor/immortal)
   + Have the group in a circle. Everyone starts out as an egg and places their hands above their head and together so that they look like an egg. When you say go each person will find another egg. Once they found that person they will then RPS (Rock, Paper , Scissors). The loser stays an egg and the winner becomes a chicken, placing their arms as wings and making chicken noises. The chicken then looks for another chicken while the egg looks for another egg. When you win as a chicken you become a velociraptor, placing your hands out and roaring like a velociraptor. If you lose as a chicken you drop back down to an egg. Velociraptors then find other velociraptors, where they will play to become the immortal people. Immortals put their hands over their heads like superman and look for others like them. If you lose as a dinosaur you go back to being a chicken, looking for other chickens. If an immortal person loses to another immortal they go back to a dinosaur, and if they win they stay as immortals. 
 + Guess the person’s expression
