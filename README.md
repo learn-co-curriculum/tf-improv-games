@@ -2,6 +2,8 @@
 
 It's important to get your students out of their seats (and their comfort zones) every once in a while. Below are some tried and tested improv games that have worked well in our classes. Contact one of Flatiron's lead teachers if you want a demo.
 
++ Name-Action (Good for day 1)
+  + Circle up. Each person introduces themselves to the group with a name, an adjective (that starts with the same letter of their name), and an action to go with that adjective. For example, "Silly Sally" (with an associated gesture). Once everyone has gone around and introduced themelves in this way, you 'pass the focus around' by saying/doing your intro and then doing someone else's. The person who's intro you just did then does the same - their own and someone elses. Do this until everyone has been called.
 + Zip-Zap-Zop
 + Bowl of Spaghetti
 + Stare game
