@@ -5,6 +5,10 @@ It's important to get your students out of their seats (and their comfort zones)
 + Name-Action (Good for day 1)
   + Circle up. Each person introduces themselves to the group with a name, an adjective (that starts with the same letter of their name), and an action to go with that adjective. For example, "Silly Sally" (with an associated gesture). Once everyone has gone around and introduced themelves in this way, you 'pass the focus around' by saying/doing your intro and then doing someone else's. The person who's intro you just did then does the same - their own and someone elses. Do this until everyone has been called.
 + Zip-Zap-Zop
+  + Zip moves in the same direction
+  + Zap reverses the direction
+  + Zop can throw the point of reference anywhere across the circle
+  + (Can throw hands up and boing! the Zop, which returns it)
 + Bowl of Spaghetti
 + Stare game
   + Circle up. Everyone puts heads down and at the count of three everyone looks up and stares at one other person in the circle. If the person they chose is staring back at them, you're both out. Play until there are two winners.
