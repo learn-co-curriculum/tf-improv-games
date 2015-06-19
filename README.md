@@ -71,6 +71,8 @@ It's important to get your students out of their seats (and their comfort zones)
   + Needs instructions
 + One Word Proverbs
   + Players in a circle. One player starts with first word of a (non-existing) proverb; circle continues, one word at a time, until the group 'feels' the proverb is done; at that point everybody says 'yes yes yes yes'. Hint: start with (a) typical proverb word(s), like 'A', 'He who', etc. 
++ Pterodactyl
+  + Players in a circle. The hold their lips over their teeth, and if you show your teeth (as you are wont to do when laughing) you are out. Players proceed around the circle, saying "pterodactyl" to the player next around the circle to them. They can change direction by making a big "Wraaaaaahh" sound, like a Pterodactyl's mighty cry. They must also flap their arms. Play proceeds until only one champion remains. If there appears to be a draw, a Vegetable-off can be used to determine the winner. 
 + Random power point presentation
   + Needs instructions
 + Show Us How You Get Down 
@@ -93,6 +95,8 @@ It's important to get your students out of their seats (and their comfort zones)
   + Circle up. Everyone puts heads down and at the count of three everyone looks up and stares at one other person in the circle. If the person they chose is staring back at them, you're both out. Play until there are two winners.
 + Three Way Conversation
   + Player A sits between two end player(B and C). Each end player chooses a topic and engages in a conversation with the center as if the other end player did not exist. The center must converse to both ends responding and initiating when necessary, fluent in both conversations and not excluding either player. Then call "switch" and either end player bumps the center over and switch over.
++ Veggie-off
+  + This is (usually) a one-on-one competition, used to settle draws or determine which partner goes first. Duelists stand back-to-back. They count three, striding away from each other on each count. On three, a third person yells a vegetable, like "Brussels Sprouts!" The two combatants then do their best impersonation of that vegetable. The winner is often clear, but a crowd vote-by-applause otherwise determines the champion.
 + What's on that Busted Tee?
   + Needs instructions
 + Zip-Zap-Zop
