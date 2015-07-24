@@ -55,6 +55,11 @@ It's important to get your students out of their seats (and their comfort zones)
   + Fun warm-up. One player offers something, e.g. I am a slice of cheese. 2nd player jumps in and adds something to the offer, e.g. I am a slice of bread. 3rd player jumps in and again adds to the setup, e.g. I am a pickle. First player leaves, taking one of the others with him. Restart from the remaining player, who restarts by saying what/who she is.
 + Guess the person’s expression
   + Needs instructions
++ Human Knot (Refactoring)
+  + As a team, untangle yourselves to form a full circle again.
+  + Arrange everyone to be in a large circle. When you say “go”, everyone needs to join hands with another person across the circle.
+  + The object of the game is to work together to untangle everyone to become a large circle. Everyone’s hands must be joined with the other person at all times. This may require some outside help/consulting and coordination, as well as a bit of climbing, etc. This game requires people to be close to each other.
+  + If the group is unable to fully untangle themselves after 10 or 15 minutes, let one person unlink and rejoin their hand with someone else’s (the other two people need to join hands). The group can strategize and decide who they’d like to unlink/rejoin.
 + Interest Bingo
   + Needs instructions
 + Mind Meld
