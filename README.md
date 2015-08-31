@@ -28,6 +28,8 @@ It's important to get your students out of their seats (and their comfort zones)
   + The game moves fast -- due to the strategic "bum-shuffling" by the group, the place of the empty seat is in constant movement, like a Mexican wave, changing directions, tempting, then moving fast - or instantly appearing on the other side if a bold cross is made by someone
   + Eventually the person in the middle makes a successful lunge for a seat (it can get very dramatic), the group member who was aiming for the seat (group consensus) now goes in the middle
   + And so on....
++ Concentration
+  + Players gather in circle and begin same rhythm all together. A common rhythm is clapping twice and tapping thighs twice. Once everyone is on same rhythm group picks out a category such as girl's names, colors, cities etc. One person begins saying a word that matches the category but they can only speak when they are tapping their thighs. Then the next person must go at the same rhythm. There are no repeats or hesistations. When a student messes up they are out until one winner remains. The rhythm is the most important part of the game. 
 + Crazy eights
   + Players form a circle. In unison, everyone lifts the right hand, shakes it quickly, and counts to 8. They repeat this with the left hand, then the right foot (kicking it in the air while balancing on the left) and finally with the left foot. Everyone immediately repeats the pattern, except this time the players only count up to 7. In each round, the players count up to one less number, until everyone is quickly waving their entire body shouting "1! 1! 1! 1!" Then everybody cheers.
 + Couch Game (great for reinforcing names after a couple days)
