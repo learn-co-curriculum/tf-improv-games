@@ -110,3 +110,5 @@ It's important to get your students out of their seats (and their comfort zones)
   + Needs instructions
 + Zip-Zap-Zop
   + Stand in a circle. Someone begins by pointing to another person in the circle and saying "ZIP!" That person then points to yet another person and says "ZAP!" That person points to another person and says "ZOP!" This continues, but the words must be said in order: ZIP, ZAP, ZOP.
+
+<a href='https://learn.co/lessons/tf-improv-games' data-visibility='hidden'>View this lesson on Learn.co</a>
