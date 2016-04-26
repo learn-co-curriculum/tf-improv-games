@@ -57,6 +57,8 @@ It's important to get your students out of their seats (and their comfort zones)
   + Fun warm-up. One player offers something, e.g. I am a slice of cheese. 2nd player jumps in and adds something to the offer, e.g. I am a slice of bread. 3rd player jumps in and again adds to the setup, e.g. I am a pickle. First player leaves, taking one of the others with him. Restart from the remaining player, who restarts by saying what/who she is.
 + Guess the person’s expression
   + Needs instructions
++ Hand Slap Name Game
+  + Circle up. Everyone holds hands out. One person in the center. Someone starts by saying another person's name - that person has to say someone elses name before the person in the middle slaps their hands.
 + Human Knot (Refactoring)
   + As a team, untangle yourselves to form a full circle again.
   + Arrange everyone to be in a large circle. When you say “go”, everyone needs to join hands with another person across the circle.
